@@ -10,7 +10,7 @@ Good news: Yes, there is.
 
 In this guide, we’ll show you how to get the best working CXL coupon in 2025, where to find hidden deals, and how to save smartly without compromising on quality.
 
-CXL Coupon Code | Get 70% Discount [Annual All Access]
+## CXL Coupon Code | Get 70% Discount [Annual All Access]
 
 Get a [**70% discount**](https://bit.ly/4i1X9CR) on CXL annual all access, which will be a **saving of $2279** annually on your subscription.
 
