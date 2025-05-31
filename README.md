@@ -1,4 +1,4 @@
-# CXL Review: Is It Worth Your Investment?
+# CXL Review: Is It Worth Your Investment In 2025?
 
 This is the only CXL Review you need to read in 2025.
 
@@ -10,7 +10,7 @@ But wait, does it live up to the hype? Is it worth your hard-earned money?
 
 In this [detailed CXL review](http://cxreview.co/), we’ll uncover everything you need to know about CXL Institute: its courses, unique features, pricing, and whether it’s the right fit for your career aspirations.
 
-By the end of this, you’ll know if CXL deserves a spot in your learning toolkit or if you’re better off exploring alternatives. Let’s dive in!
+By the end of this, you’ll know if CXL deserves a spot in your learning toolkit or if you’re better off exploring alternatives. Find out [why I like the CRO course from CXL](https://cxlreview.com/) and what students are saying about their mini degree course. Let’s dive in!
 
 ---
 
